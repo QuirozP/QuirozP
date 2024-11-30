@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @QuirozP
-- 👀 I’m interested in Vocaloid producing, Chatting, enjoying nature and asian culture.
+- 👀 I’m interested in Vocaloid, coding, music, arts and games.
 - 🌱 I’m currently in school.
-- 💞️ I’m looking to collaborate on every tb user.
+- 💞️ I’m looking for nice people.
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm diagnosed with autism when i was 4
+- ⚡ Fun fact: I like coding on school PC.
 
 <!---
 QuirozP/QuirozP is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

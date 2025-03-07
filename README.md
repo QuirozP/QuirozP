@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @QuirozP
-- 👀 I’m interested in Vocaloid, coding, music, arts and games.
+- 👀 I’m interested in Arts, Coding, Music and whatever.
 - 🌱 I’m currently in school.
 - 💞️ I’m looking for nice people.
 - 😄 Pronouns: he/him
